@@ -1,0 +1,1 @@
+To use our beta version: http://symbeeonline.com/install.html
